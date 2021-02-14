@@ -1,1 +1,1 @@
-## Resume of Kushal Dhakal(@dhakal0kushal)
+## Resume of Bishal Dhakal(@bishal010)
